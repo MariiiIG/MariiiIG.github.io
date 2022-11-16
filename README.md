@@ -1,6 +1,5 @@
-# MariiiIG.github.io
+# ღWelcome to MariiiIG.github.ioও
 ---
-ღWelcomeও
 I am Mair Chariol Ignao!
 - *Hi*
 - **Hi**
