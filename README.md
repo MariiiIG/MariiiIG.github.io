@@ -1,7 +1,7 @@
 # MariiiIG.github.io
 ---
 ღWelcomeও
-Things to remember!
+I am Mair Chariol Ignao!
 - *Hi*
 - **Hi**
 - *Hi*
