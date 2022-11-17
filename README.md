@@ -10,4 +10,4 @@
 ## Now onto the things I like!
 
 - Firstly, I like Vtubers! I stan mostly everyone in *Niji-EN, Shxtou, IronMouse, etc*.
-![alt text](https://images.microcms-assets.io/assets/5694fd90407444338a64d654e407cc0e/e91d3a5a85924eaa98fefaf957e5f860/nijisanjienpetit_press220831_EN_onsale.png?fit=clip&w=800&dpr=2) 
+![alt text](https://64.media.tumblr.com/f418e9cfb654d2d04025d3dcd0934af7/0bbfcf85a236f946-40/s500x750/24d3dbe7ec6770b458fcdfdd304255946289b081.gifv) 
