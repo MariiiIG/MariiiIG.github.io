@@ -1,5 +1,13 @@
-# Welcome to MariiiIG.github.io!
-## This website will introduce you to the Nijisanji-EN Community!
----
-First, what is Nijisanji? Well, Nijisanji is a community of Virtual Youtubers (V-tubers) handled by a japanese company called AnyColor. They are seperated in different branches; Nijisanji, VirtualReal, and Nijisanji EN.
-![alt text](http://pbs.twimg.com/media/FHjxssTVUAATuj3.jpg)
+# Get to Know me!
+>Hi! I am Mair Chariol P. Ignao
+
+> Born on the 6th of June, which makes me a gemini ^v^ 
+
+> Some hobbies of mines are decorating, playing badminton, and gaming (*￣3￣)╭
+
+> [`More about me`](https://youtu.be/dQw4w9WgXcQ)
+
+> [`Video that decribes me`](https://youtu.be/C48-6GopS1c)
+## Now onto the things I like!
+
+- Firstly, I like Vtubers! I stan mostly everyone in *Niji-EN, Shxto, IronMouse, etc*.
