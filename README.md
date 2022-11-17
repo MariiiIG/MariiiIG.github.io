@@ -5,8 +5,6 @@
 
 > Some hobbies of mines are decorating, playing badminton, and gaming (*￣3￣)╭
 
-> [`More about me`](https://youtu.be/dQw4w9WgXcQ)
-
 > [`Video that describes me`](https://youtu.be/C48-6GopS1c)
 
 ## Now onto the things I like!
