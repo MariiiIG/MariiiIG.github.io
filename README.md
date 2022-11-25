@@ -29,3 +29,7 @@ I was born on the **6th of June**, which makes me a Gemini! And I am currently 1
 - I am an emotional person 🐻‍❄️
 
 IF YOU WOULD LIKE TO GET TO KNOW ME MORE, CLICK [HERE](https://mariiicarddinfo.carrd.co/). 
+
+BYE BYEEEE!
+
+https://youtu.be/QZQH7Mg2N64
