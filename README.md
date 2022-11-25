@@ -1,13 +1,31 @@
-# Get to Know me!
->Hi! I am Mair Chariol P. Ignao
+# Welcome to my get to know me website! 
+---
+First, quick run down on who I am. 
 
-> Born on the 6th of June, which makes me a gemini ^v^ 
+Hi! I am Mair Chariol P. Ignao. I go by the nicknames *Cha and Mair*. 
 
-> Some hobbies of mines are decorating, playing badminton, and gaming (*￣3￣)╭
+I was born on the **6th of June**, which makes me a Gemini! And I am currently 14 years old.
 
-> [`Video that describes me`](https://youtu.be/C48-6GopS1c)
+|Category | Likes | Dislikes |
+| ----------- | ----------- | ----------- |
+| Taste | Sweet, Sour, and Spicy | Bitter |
+| Animals | Cats, Dogs, and Snakes | Dolphins, Bugs, Amphibians|
+| Idk what this it tbh| Wholesomeness | Toxicity |
+| Genre | Comedy and Documentaries | Gore |
+|Things to do | Decorating | Leading (like being the leader or something) |
+| Random Stuff | Cute things, Pillows | Needles, Blood |
 
-## Now onto the things I like!
+## Random Facts about Me!
 
-- Firstly, I like Vtubers! I stan mostly everyone in *Niji-EN, Shxtou, IronMouse, etc*.
-![alt text](https://64.media.tumblr.com/f418e9cfb654d2d04025d3dcd0934af7/0bbfcf85a236f946-40/s500x750/24d3dbe7ec6770b458fcdfdd304255946289b081.gifv) 
+- I have a mole in my eye T w T 
+- I am deeply interested in Biology!
+- An organized but lazy person ( •̀ ω •́ )✧
+- I watch Vtubers =￣ω￣=  Kon Innit!
+- Smart in Acads but truely is dumb
+- I hate needles and blood but will take the medical field 👍
+- Likes to play shooting games but has bad aim 👍 
+- **LOVES** cats but very allergic to them 😭
+- Very much an introvert :> (INFP btw)
+- I am an emotional person 🐻‍❄️
+
+IF YOU WOULD LIKE TO GET TO KNOW ME MORE, CLICK [HERE](https://mariiicarddinfo.carrd.co/). 
