@@ -32,4 +32,4 @@ IF YOU WOULD LIKE TO GET TO KNOW ME MORE, CLICK [HERE](https://mariiicarddinfo.c
 
 BYE BYEEEE!
 
-https://www.youtube.com/embed/QZQH7Mg2N64
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/QZQH7Mg2N64" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
