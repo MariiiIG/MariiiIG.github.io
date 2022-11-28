@@ -1,10 +1,15 @@
 # Welcome to my get to know me website! 
 ---
+### Quick introduction!
+
 First, quick run down on who I am. 
 
 Hi! I am Mair Chariol P. Ignao. I go by the nicknames *Cha and Mair*. 
 
 I was born on the **6th of June**, which makes me a Gemini! And I am currently 14 years old.
+
+---
+### Unto Likes and Dislikes! 
 
 |Category | Likes | Dislikes |
 | ----------- | ----------- | ----------- |
@@ -15,7 +20,7 @@ I was born on the **6th of June**, which makes me a Gemini! And I am currently 1
 |Things to do | Decorating | Leading (like being the leader or something) |
 | Random Stuff | Cute things, Pillows | Needles, Blood |
 
-## Random Facts about Me!
+### Random Facts about Me!
 
 - I have a mole in my eye T w T 
 - I am deeply interested in Biology!
