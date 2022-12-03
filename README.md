@@ -6,7 +6,7 @@ First, quick run down on who I am.
 
 Hi! I am Mair Chariol P. Ignao. I go by the nicknames *Cha and Mair*. 
 
-I was born on the **6th of June**, which makes me a Gemini! And I am currently 14 years old.
+I was born on the **6th of June**, which makes me a Gemini!
 
 ---
 ### Unto Likes and Dislikes! 
