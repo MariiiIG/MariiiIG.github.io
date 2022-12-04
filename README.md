@@ -33,6 +33,10 @@ I was born on the **6th of June**, which makes me a Gemini!
 - Very much an introvert :> (INFP btw)
 - I am an emotional person 🐻‍❄️
 
+### Here are some of the top songs I listen to!
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/37i9dQZF1F0sijgNaJdgit?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 IF YOU WOULD LIKE TO GET TO KNOW ME MORE, CLICK [HERE](https://mariiicarddinfo.carrd.co/). 
 
 BYE BYEEEE!
